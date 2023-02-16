@@ -9,9 +9,9 @@
 👤 **Amalia Gomez Moro**
 
 
-- GitHub: [@AmaliaGM](https://github.com/AmaliaGM)
-- Twitter: [@twitterhandle](https://twitter.com/AmaliaGomezMoro)
-- LinkedIn: [LinkedIn](https://www.linkedin.com/in/maria-amalia-gomez-moro/)
+- [GitHub](https://github.com/AmaliaGM)
+- [Twitter](https://twitter.com/AmaliaGomezMoro)
+- [LinkedIn](https://www.linkedin.com/in/maria-amalia-gomez-moro/)
 
 ## [Biography](https://docs.google.com/document/d/1tPu6hiGT8NG87_lRsErIDBMe3N-O4J0V9IVUcZrR_Q8/edit?usp=sharing)
 
